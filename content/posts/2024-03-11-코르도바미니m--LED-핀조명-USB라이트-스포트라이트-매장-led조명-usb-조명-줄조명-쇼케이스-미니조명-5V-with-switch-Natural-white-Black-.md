@@ -1,11 +1,10 @@
 ---
-title: "코르도바미니m  [50~60대]  LED 핀조명 USB라이트 스포트라이트 매장 led조명 usb 조명 줄조명 쇼케이스 미니조명 5V, with switch, 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보"
+title: '코르도바미니m  [50~60대]  LED 핀조명 USB라이트 스포트라이트 매장 led조명 usb 조명 줄조명 쇼케이스 미니조명 5V, with switch, 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보'
 date: 2024-03-11
-slug: "코르도바미니m--LED-핀조명-USB라이트-스포트라이트-매장-led조명-usb-조명-줄조명-쇼케이스-미니조명-5V-with-switch-Natural-white-Black-"
-author: Moon
+slug: '코르도바미니m--LED-핀조명-USB라이트-스포트라이트-매장-led조명-usb-조명-줄조명-쇼케이스-미니조명-5V-with-switch-Natural-white-Black-'
+author: 'Moon'
 categories: [shopping]
 tags: [Top10, shopping, 장점, 추천, 추천제품, 구매가이드, 할인, 최저가격, 상품평, 후기, 코르도바미니m]
----
 
 **코르도바 미니: 프리미엄 우쿨렐레를 손쉽게**
 

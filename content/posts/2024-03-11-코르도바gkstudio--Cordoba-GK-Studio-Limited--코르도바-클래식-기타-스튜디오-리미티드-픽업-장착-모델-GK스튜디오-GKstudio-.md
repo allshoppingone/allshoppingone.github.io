@@ -1,11 +1,10 @@
 ---
-title: "코르도바gkstudio  [50~60대]  Cordoba GK Studio Limited | 코르도바 클래식 기타 스튜디오 리미티드 픽업 장착 모델 GK스튜디오 GK 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보"
+title: '코르도바gkstudio  [50~60대]  Cordoba GK Studio Limited | 코르도바 클래식 기타 스튜디오 리미티드 픽업 장착 모델 GK스튜디오 GK 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보'
 date: 2024-03-11
-slug: "코르도바gkstudio--Cordoba-GK-Studio-Limited--코르도바-클래식-기타-스튜디오-리미티드-픽업-장착-모델-GK스튜디오-GKstudio-"
-author: Moon
+slug: '코르도바gkstudio--Cordoba-GK-Studio-Limited--코르도바-클래식-기타-스튜디오-리미티드-픽업-장착-모델-GK스튜디오-GKstudio-'
+author: 'Moon'
 categories: [shopping]
 tags: [Top10, shopping, 장점, 추천, 추천제품, 구매가이드, 할인, 최저가격, 상품평, 후기, 코르도바gkstudio]
----
 
 ## '코르도바gkstudio' 피아노: 음악가의 꿈을 현실로
 

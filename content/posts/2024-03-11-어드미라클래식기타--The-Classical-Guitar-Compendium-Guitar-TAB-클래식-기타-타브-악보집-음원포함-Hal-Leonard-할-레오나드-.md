@@ -1,11 +1,10 @@
 ---
-title: "어드미라클래식기타  [50~60대]  The Classical Guitar Compendium (Guitar TAB) 클래식 기타 타브 악보집 (음원포함) Ha 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보"
+title: '어드미라클래식기타  [50~60대]  The Classical Guitar Compendium (Guitar TAB) 클래식 기타 타브 악보집 (음원포함) Ha 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보'
 date: 2024-03-11
-slug: "어드미라클래식기타--The-Classical-Guitar-Compendium-Guitar-TAB-클래식-기타-타브-악보집-음원포함-Hal-Leonard-할-레오나드-"
-author: Moon
+slug: '어드미라클래식기타--The-Classical-Guitar-Compendium-Guitar-TAB-클래식-기타-타브-악보집-음원포함-Hal-Leonard-할-레오나드-'
+author: 'Moon'
 categories: [shopping]
 tags: [Top10, shopping, 장점, 추천, 추천제품, 구매가이드, 할인, 최저가격, 상품평, 후기, 어드미라클래식기타]
----
 
 **어드미라클래식기타: 전통과 혁신의 조화**
 

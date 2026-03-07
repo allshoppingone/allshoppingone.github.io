@@ -1,11 +1,10 @@
 ---
-title: "알바자릴라헤어마스크  [30~50대 여성추천]  Arvazallia Hydrating Argan Oil Hair Mask Treatment 알바자릴라 아르간 오일 헤어 트 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보"
+title: '알바자릴라헤어마스크  [30~50대 여성추천]  Arvazallia Hydrating Argan Oil Hair Mask Treatment 알바자릴라 아르간 오일 헤어 트 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보'
 date: 2024-04-02
-slug: "알바자릴라헤어마스크--Arvazallia-Hydrating-Argan-Oil-Hair-Mask-Treatment-알바자릴라-아르간-오일-헤어-트리트먼트-250mlX2-250ml-2개-"
-author: Moon
+slug: '알바자릴라헤어마스크--Arvazallia-Hydrating-Argan-Oil-Hair-Mask-Treatment-알바자릴라-아르간-오일-헤어-트리트먼트-250mlX2-250ml-2개-'
+author: 'Moon'
 categories: [shopping]
 tags: [Top10, shopping, 장점, 추천, 추천제품, 구매가이드, 할인, 최저가격, 상품평, 후기, 알바자릴라헤어마스크]
----
 
 ## 빛나는 모발을 위한 알바자릴라 헤어 마스크
 

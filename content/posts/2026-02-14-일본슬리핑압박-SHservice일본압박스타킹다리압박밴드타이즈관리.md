@@ -1,11 +1,10 @@
 ---
 layout: single
-title: "일본슬리핑압박  SHservice 일본압박스타킹 다리 압박밴드 타이즈 관리 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보"
-author: Moon
+title: '일본슬리핑압박  SHservice 일본압박스타킹 다리 압박밴드 타이즈 관리 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보'
+author: 'Moon'
 categories: [shopping]
 tags: ["Top5", "shopping", "일본압박스타킹", "압박밴드", "다리관리", "부종완화", "혈액순환", "미용스타킹I have generated the Markdown content as requested.", "미용스타킹"]
 pin: true
----
 
 💦파트너스 활동을 통해 일정액의 수수료를 제공받습니다.💦
 
