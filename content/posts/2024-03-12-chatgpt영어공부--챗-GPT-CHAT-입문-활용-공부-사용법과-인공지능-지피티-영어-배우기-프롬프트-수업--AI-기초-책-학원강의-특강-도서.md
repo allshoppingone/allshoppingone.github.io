@@ -3,8 +3,9 @@ title: 'chatgpt영어공부  [20~30대 남성추천]  챗 GPT CHAT 입문 활용
 date: 2024-03-12
 slug: 'chatgpt영어공부--챗-GPT-CHAT-입문-활용-공부-사용법과-인공지능-지피티-영어-배우기-프롬프트-수업--AI-기초-책-학원강의-특강-도서'
 author: 'Moon'
-categories: [shopping]
-tags: [Top10, shopping, 장점, 추천, 추천제품, 구매가이드, 할인, 최저가격, 상품평, 후기, chatgpt영어공부]
+categories: ['shopping']
+tags: ['Top10', 'shopping', '장점', '추천', '추천제품', '구매가이드', '할인', '최저가격', '상품평', '후기', 'chatgpt영어공부']
+---
 
 **ChatGPT영어학습: 영어 능력 향상의 비결**
 

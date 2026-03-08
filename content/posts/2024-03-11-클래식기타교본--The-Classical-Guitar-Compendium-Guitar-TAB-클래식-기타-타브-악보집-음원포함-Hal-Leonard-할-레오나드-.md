@@ -3,8 +3,9 @@ title: '클래식기타교본  [50~60대]  The Classical Guitar Compendium (Guit
 date: 2024-03-11
 slug: '클래식기타교본--The-Classical-Guitar-Compendium-Guitar-TAB-클래식-기타-타브-악보집-음원포함-Hal-Leonard-할-레오나드-'
 author: 'Moon'
-categories: [shopping]
-tags: [Top10, shopping, 장점, 추천, 추천제품, 구매가이드, 할인, 최저가격, 상품평, 후기, 클래식기타교본]
+categories: ['shopping']
+tags: ['Top10', 'shopping', '장점', '추천', '추천제품', '구매가이드', '할인', '최저가격', '상품평', '후기', '클래식기타교본']
+---
 
 ## 클래식 기타를 마스터하세요: 필수 교본 소개
 
